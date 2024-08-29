@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Game Development
 - 💞️ I’m looking to collaborate on Unity
-- 📫 How to reach me theonlyprincedaniel@gmai.com
+- 📫 How to reach me theonlyprincedaniel@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: I love having adventures
 
